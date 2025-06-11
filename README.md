@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Pitam Adak
 - 👀 I’m interested in Techy things
 - 🌱 At learning stage
-- 📫 if you want to contact me: maybepitam@gmail.com
+- 📫 if you want to contact me: pitamadak05@gmail.com
